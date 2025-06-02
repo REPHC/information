@@ -1,0 +1,2 @@
+# information
+お知らせ
